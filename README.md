@@ -4,3 +4,5 @@ Similar to Pokémon
 
 
 ![Uploading image.png…]()
+
+https://www.pokemon.cn/play/resources/pokedex/img/pm/d0ee81f16175c97770192fb691fdda8da1f4f349.png****
